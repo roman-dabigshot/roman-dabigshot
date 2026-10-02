@@ -6,10 +6,9 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like playing Minecraft :>
 
-i am inactive-- dont expect to hear for a while.
+I'm back :D
 
 <!---
 roman-dabigshot/roman-dabigshot is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-shout out to eagler.host
